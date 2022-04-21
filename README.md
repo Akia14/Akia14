@@ -5,7 +5,7 @@ ___
 - 🎓 MBA- Digital Marketing Graduate
 - 💼 Athlete → Sales → Marketing Specialist → Account Manager → Marketing Data Analyst
 - ✨ I love learning new things - from making homemade bread to automating any and everything
-- 📝 I organize EVERYTHING in life via Excel- travel, accounts, monthly goals, events, etc. 
+- 📝 I organize EVERYTHING in life via project management tools & Excel- travel, accounts, monthly goals, events, etc. 
 
 
 
