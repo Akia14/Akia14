@@ -14,5 +14,5 @@ ___
 - 🌱 I’m in the process of learning Python
 
 
-📍**Where Can You Find Me**
+📍**Where You Can Find Me**
 - [LinkedIn](https://www.linkedin.com/in/a-kia-harris-mba-89959bb0)
